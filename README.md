@@ -1,0 +1,1 @@
+# Intelig-ncia-Educacional-Desigualdade-Microdados-ENEM-2020-2023
